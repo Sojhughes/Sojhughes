@@ -6,5 +6,5 @@
 - 📫 How to reach me: You don't.
 - 😄 Pronouns: She
 - ⚡ Fun fact: I have two turtles and a dog
-- This is just a placeholder for my actual readme 
+- ***Still editing this
 
